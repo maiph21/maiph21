@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @maiph21
+- Currently a EHL student
+- Total beginner
